@@ -114,6 +114,6 @@ Feel free to reach out if you have any questions, suggestions, or just want to c
 
 - **Email:** [karuneshbansal84@gmail.com](karuneshbansal84@gmail.com)
 - **Phone:** +91 8295169318
-- **LinkedIn:** [linkedin.com/in/karunesh-bansal](https://www.linkedin.com/in/karunesh-bansal)
+- **LinkedIn:** [linkedin.com/in/karunesh-bansal](https://www.linkedin.com/in/karunesh-bansal-780828380)
 
 I look forward to hearing from you!
